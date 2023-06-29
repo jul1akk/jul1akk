@@ -1,3 +1,3 @@
 ### **welcome!💮**
 
-- utilizo esse espaço para futuramente compartilhar alguns projetos
+- Utilizo esse espaço para futuramente compartilhar alguns projetos escolares...
